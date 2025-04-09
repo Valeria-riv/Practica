@@ -1,0 +1,4 @@
+#PRACTICA
+
+
+I AM ATOMIC
